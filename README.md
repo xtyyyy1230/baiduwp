@@ -16,5 +16,4 @@ IDM工具下载：https://www.123pan.com/s/hxi5Vv-oncQH.html
 
 支持项目，赋予更多流量，共创更好体验，让服务更强大！
 创立以来，得益于大家的支持，感激一路相伴，项目将持续免费。
-
-![微信图片_20231022203907](https://github.com/xtyyyy1230/baiduwp/assets/9477101/b60b27d5-8d78-44b8-9100-f893d7dc54d2)
+![微信图片_20231022203907](https://github.com/xtyyyy1230/baiduwp/assets/9477101/51156c39-2cf7-43f5-840a-041ebb3b6ada)
