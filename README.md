@@ -10,3 +10,9 @@ https://zi5oqdul6ex.feishu.cn/docx/UT8vd1Nbvo6ZqkxszVucqu8Unsg
 
 IDM工具下载：https://www.123pan.com/s/hxi5Vv-oncQH.html
 ![IDM](https://github.com/xtyyyy1230/baiduwp/assets/9477101/fe29eed4-23aa-4ee2-8600-1c0b8e671cd0)
+
+
+☕捐赠
+支持项目，赋予更多流量，共创更好体验，让服务更强大！
+创立以来，得益于大家的支持，感激一路相伴，项目将持续免费。
+![Uploading image.png…]()
