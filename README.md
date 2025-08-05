@@ -6,7 +6,7 @@
   
 
 
-最新解析脚本地址: https://greasyfork.org/zh-CN/scripts/512984-%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98svip%E8%A7%A3%E6%9E%90%E9%AB%98%E9%80%9F%E4%B8%8B%E8%BD%BD-%E5%BA%A6%E5%A8%98%E5%8A%A0%E9%80%9F
+最新解析脚本安装地址: https://greasyfork.org/zh-CN/scripts/512984-%E7%99%BE%E5%BA%A6%E7%BD%91%E7%9B%98svip%E8%A7%A3%E6%9E%90%E9%AB%98%E9%80%9F%E4%B8%8B%E8%BD%BD-%E5%BA%A6%E5%A8%98%E5%8A%A0%E9%80%9F
 
 最新百度网盘解析高速下载脚本使用教程，不会用的可以看一下教程：
 https://zi5oqdul6ex.feishu.cn/docx/UT8vd1Nbvo6ZqkxszVucqu8Unsg
