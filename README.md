@@ -17,7 +17,8 @@ IDM工具下载：https://wwgu.lanzouq.com/iFDy52qvm4xe
 ![IDM](https://github.com/xtyyyy1230/baiduwp/assets/9477101/fe29eed4-23aa-4ee2-8600-1c0b8e671cd0)
 
 
-![image]([https://github.com/xtyyyy1230/baiduwp/assets/9477101/b1076922-8b5e-4cf0-8c01-378f596b8b28](https://internal-api-drive-stream.feishu.cn/space/api/box/stream/download/preview/NUDPbC3OyoljLaxp66dcoum3nSp/?preview_type=16))
+<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/db4f6b81-6168-4dc1-a45c-490c5b00c876" />
+
 
 ☕捐赠
 
